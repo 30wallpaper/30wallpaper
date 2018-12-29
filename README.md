@@ -17,7 +17,7 @@ This Project is done by [Hitanshu Sahu][Hitanshu Sahu] and Few Wallpaper Done by
 >promised myself to make one WallPaper daily but
 >could not make it complete so in December one
 >day I realised I should make it complete and
->I did it, I hope You like it.
+>I did it, I hope you like it.
 
 ### Behind the Scenes
 
